@@ -1,5 +1,5 @@
 # HackGenshin
-9f256375-fcd0-46a6-934d-2c6fe6ca475b
+https://pxtrez.com/ - для школьной нужды
 -
 -
 -
